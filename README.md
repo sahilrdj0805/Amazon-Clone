@@ -1,0 +1,1 @@
+I am too excited too share with all of you that after all hardwork finaly i completed amazon clone ..This project help me to improve my skills in front-end development and looking forward to build more websiters like this..
